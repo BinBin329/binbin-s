@@ -1,1 +1,2 @@
 # binbin-s
+FIGHTING!Binbin!
